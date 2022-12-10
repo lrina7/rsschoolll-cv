@@ -29,3 +29,16 @@
 #### Photoshop
 
 ***
+
+### **Education:**
+
+#### Mogilev State University A.Kuleshov
+
+***
+
+### **Languages:**
+
+#### Russian and Belarussian - C2
+#### English - B1
+
+#### Spanish and Arabic - A1
